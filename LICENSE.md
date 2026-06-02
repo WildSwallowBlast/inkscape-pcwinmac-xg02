@@ -1,4 +1,4 @@
-# 
+# Oficial Inkscape predefinições para Mac OS | Elite Inkscape predefinições para PC Windows. Com janela de referência e modelos de design — otimizado para máximo desempenho em cada plataforma.
 
 
 
